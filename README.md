@@ -38,7 +38,7 @@ https://github.com/user-attachments/assets/cf93740c-e9f8-4e1c-bd50-f3391af9ee61
 
       <a href="https://rentry.co/foreternal">![](https://files.catbox.moe/nbu982.webp)</a>                                     <a href="https://calamity.atabook.org/">![](https://files.catbox.moe/2y55cz.webp)</a>  
 
-${\color{#a9a9a7}While  im  yours  and  you're  mine  .}$
+${\color{#a9a9a7}While  im  yours  and  you  are  mine  .}$
 
 
 
