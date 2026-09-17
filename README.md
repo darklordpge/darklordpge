@@ -24,6 +24,9 @@ https://github.com/user-attachments/assets/cf93740c-e9f8-4e1c-bd50-f3391af9ee61
 ![](https://files.catbox.moe/f4mlbt.webp)![](https://files.catbox.moe/c3i4hv.webp)
 
    ${\color{#a9a9a7}And  i  want  it  all  the  time  ,}$ 
+
+   <code>-[guns.lol](https://guns.lol/remorse4ul)</code>
+   
 <details> 
 <summary><code>-⚔︎</code> ۫⠀</summary> 
 <br>
