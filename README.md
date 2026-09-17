@@ -43,11 +43,6 @@ https://github.com/user-attachments/assets/cf93740c-e9f8-4e1c-bd50-f3391af9ee61
 
 ${\color{#a9a9a7}While  im  yours  and  you  are  mine  .}$
 
-
+![](https://komarev.com/ghpvc/?username=Iovefool&style=plastic&color=000000&label=𖹭)
 
 --------------------------------------------------------------------------------------------------------------
-
-
-
-
-![](https://komarev.com/ghpvc/?usrman=Iovefool&color=a9a9a7&label=⚔︎)
